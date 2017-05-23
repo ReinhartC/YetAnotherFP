@@ -1,2 +1,1 @@
-Semua file ada di zipnya
-Good luck lads
+SE MAN GAT
